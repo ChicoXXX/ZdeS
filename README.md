@@ -1,2 +1,1 @@
-# ZdeS
-Zona del Silencio
+# Zona del Silencio
