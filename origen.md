@@ -14,7 +14,7 @@ En aquellos entonces, continua el relato, la caída del hoy conocido como meteor
 
 Tiempo después, el 11 de julio de 1970, cae en el área el cohete (¿misil?) Athena, llegando el día 13 del mismo mes personal de la Décima Zona Militar en Durango, obedeciendo ordenes de la Secretaría de la Defensa Nacional, personal del ejército norteamericano, localizando el misil el 1 de agosto, a ocho kilómetros al norte del cerro de San Ignacio; tendiendo inmediatamente un tramo de vía férrea desde Estación Carrillo y una pista áerea para aviones de transporte pesado.
 
-
+(Continuará)
 
 
 
